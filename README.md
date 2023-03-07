@@ -1,0 +1,2 @@
+|All source codes and releases from this project are removed at the request of some secene member to avoid spreading damages. If you are using this or anything like this project that bypass Horizon OS limits, REMOVE THEM IMMEDIATELY!|
+|:-:|
